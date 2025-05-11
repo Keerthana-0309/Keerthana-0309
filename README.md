@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on web development projects, open-source contributions, and learning initiatives.
 
-📫 How to reach me: You can contact me via email at keerthanamurugan0309@gmail.com or connect with me on LinkedIn.
+
 
 😄 Pronouns: She/Her
 
